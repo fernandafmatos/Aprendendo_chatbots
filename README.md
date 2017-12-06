@@ -1,2 +1,2 @@
 # aprendendo_chatbots
-Trabalho de Mestrado
+estudando... 
